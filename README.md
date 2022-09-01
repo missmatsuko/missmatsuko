@@ -2,5 +2,5 @@
 
 - 😄 Pronouns: they/them/their(s) or she/her/her(s).
 - 📍 Location: somewhere in the Pacific Northwest (PNW), probably.
-- 📖 Occupation: student.
+- 📖 Occupation: student (again).
 - 📫 Contact: <hello@matsuko.ca>.
